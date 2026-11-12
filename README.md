@@ -1,1 +1,1 @@
-# quramboyevozodbek5-commits-
+salom
